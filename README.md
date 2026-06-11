@@ -1,1 +1,1 @@
-Quant Journey !
+Quant Journey
